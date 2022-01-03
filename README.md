@@ -1,2 +1,0 @@
-# Fendt
-kevdhz@gmail.com
